@@ -2,8 +2,3 @@
 
 # jejejnn
 
-kkansdkasndas
-ansdnasndas
-knasdnkasnd
-
-ansdnsdkn
